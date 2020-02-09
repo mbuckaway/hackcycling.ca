@@ -1,0 +1,5 @@
+---title: Midweek Crit August 17visible: true---I did the Midweek Crit last week. The guy from CyclingPhotos.ca was there snapping pics as usual. I rode in the first race, but pulled out with something like 5 laps to go...and missed the crash near the end. I also did most of the second race, but pulled out with 3 laps to go. I'm not there to win anything, but more for the hard workout, so going through to the final sprint isn't really what matters to me. Next year, I may try a bit harder and trying getting to the final sprint or try getting out to the break in the second race. As it is, a photo was take of the race start. I am in it and up near the front. Of course, once the race started, I didn't last more than four laps at the front of the pack and the quickly tired and fell off the back when the pace went really high. It will be some time before I can keep up with the masters 1 guys.
+
+Here is the photo:
+
+<img style="border-width: 1px; border-style: solid;" src="http://www.canadiancyclist.com/races10/ON/midweek1708/images/MW-August17_003.jpg" alt="Midweek Crit August 17, 2010" width="640" />

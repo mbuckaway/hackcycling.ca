@@ -1,0 +1,1 @@
+---title: Peale Izumi Jacket not wind proofvisible: true---True, brighter colours would be better....which is one of my pet peaves about cycling gear. All Black. I would rather have yellow or read tights and jackets. The new jacket I acquired, however, is a blue colour with lots of reflective tags. Should be better should I desire to try riding to the office.

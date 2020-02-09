@@ -1,0 +1,3 @@
+---title: Collingwood Road Warriors group createdvisible: true---I have a desire to ride the hills in Collingwoodl It's good training. The problem? Finding others to ride it regularly. Hopefully, I'm not duplicating someone elses effort, but I've created a Google Group to allow interested cyclists to find out about group rides in the area. My intent is to put together regular rides in the spring, but I would like to hit the hills of the area for one last time before it gets too cold. So, if you like riding hills, come join my group!
+
+<a target="_blank" title="Collingwood Road Warriors" href="http://groups.google.com/group/collingwood-road-warriors">http://groups.google.com/group/collingwood-road-warriors</a>

@@ -1,0 +1,3 @@
+---title: Kids and Exercisevisible: true---What do you do to get a kid exercising? Put their bike on your computrainer and make them play games. I did that for fun this evening mostly to see if my 18 year old daughter, Allison, would actaully do it. She did. Apparently, she liked it enough she wants to do it again.
+
+{source}<iframe src="http://player.vimeo.com/video/17996590?byline=0&portrait=0" width="400" height="300" frameborder="0"></iframe>{/source}

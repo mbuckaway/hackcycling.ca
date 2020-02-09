@@ -1,0 +1,3 @@
+---title: Videosvisible: true---In case anyone actually reads this blog, I should note that all my videos have moved to Vimeo. Youtube is run by a bunch of anal retentives and my videos keeps getting chewed. Vimeo is just a better service.
+
+Videos are available from the link on the main menu or <a title="HackCycling Videos" href="http://videos.hackcycling.ca" target="_blank">http://videos.hackcycling.ca</a>

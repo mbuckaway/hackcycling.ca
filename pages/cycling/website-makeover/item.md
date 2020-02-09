@@ -1,0 +1,1 @@
+---title: Website Makeovervisible: true---The website was looking a bit drab. After working on a few other sites, I decided to spruce up my own. Check out the new menus and new look.

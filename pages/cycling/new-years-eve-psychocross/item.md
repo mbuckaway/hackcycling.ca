@@ -1,0 +1,11 @@
+---title: New Years Eve PsychoCrossvisible: true---<div>
+  Last year after riding cross for the first time, I decided to do the New Years Eve cross race. I bought cold weather gear and studded snow tires for the race. And then it was cancelled. This year, we got lucky and the race was on. I seriously started to doubt my sanity because I had spent the previous 5 days at the track in London, ON doing a training camp...and now, I'm "racing" cross. I put quotes on the notion of racing, because, well, I suck at cross. I looked at it as a opportunity for a workout, and I got that much. I spent 1hr30 riding the course, including riding the first race. My thoughts were move train to train rather than train to race in this case. I am happy to report, I wasn't last. I did manage to go down on the first lap which tossed me to be the last guy in the race, but I moved up a few during the remaining laps. Eventually, the leaders caught me and I got lapped, but so what. I was there for a bit of fun.&nbsp;<br /><br />The course was mostly flat with two run ups and no barriers - tame by cross standards, but the snow and ice on the field made riding the course hard - like riding through one big sand pit...it was for me. On this course, it seemed your position at the start really was your position at the end because of the ice and snow, moving up was hard. Even in the second race, the leaders went around the course and never caught or passed each other.<br />
+  
+  <hr id="system-readmore" />
+  
+  <br />&nbsp;
+</div>
+
+<div>
+  <a href="http://www.sportszonephotography.ca/Cyclocross-2011/New-Years-Eve-Subway-CX/Race-1-1115AM/20840710_Pv2WCD#1654518373_L3kdWWb-A-LB" title=""><img src="http://www.sportszonephotography.ca/Cyclocross-2011/New-Years-Eve-Subway-CX/Race-1-1115AM/i-L3kdWWb/0/S/Abby-2-30-S.jpg" title="" alt="" /></a> <br /><br />So, Psychocross is done for 2011. I intend to ride/race a few races in the fall and maybe work on finishing in the middle of the pack. I do not intend to be a star at it...that requires too much effort.&nbsp;<br /><br />Happy New Year everyone.<br />&nbsp;
+</div>

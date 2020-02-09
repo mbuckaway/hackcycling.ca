@@ -1,0 +1,18 @@
+---title: You are never as good as you think you are....visible: true---There are a few things I had to learn when after deciding to race a bike:
+
+1) It takes three years to be able to race competitively
+
+2) You are never as good as you think you are.
+
+As I approach year three, I'm getting to the point where my fitness level is high enough that keeping up with the pack during a race should not be an issue. I've learned things like one must stay off the brakes in the corners, conservation is more important that ego, and i t really doesn't matter how much you spent on a bike.
+
+<hr id="system-readmore" />
+
+
+Of course, the more I ride and the more types of riding I do (cross, track, etc.), the more I learn there will always be someone better than I. There will always be someone faster. So, humility is a good quality in a bike racer. I can recall two years ago, I thought I was really good. I was really fast. I could keep up with the club guys on their rides. Then, I did the first race Midweek Crit (ya know, the slow race), and almost "died". I held on mid-pack, but barely. I'll never forget how much my lungs hurt after that ride. I have discovered how fast and how good I am not many times since to the point, I now usually assume I'm not one of the better riders present during a race. I now try to worry more about my position in the pack and whether I am wasting too much energy braking or hanging near guys that do what I call a "yo-yo" : slow down, sprint up, slow down, etc. I try to stay away from them.
+
+But, I still get reminded that I am not as good as I think I am now and then. Last night, at the Forest City Velodrome, I did the Thursday night Sportif training session. Worried did I get somewhat when I saw the same guys approaching the track that I had saw racing a few weeks back. I had no idea what to expect. With each level up the ladder I have been going in my track riding, I get to a point where I'm looking good compared to the other riders...and then, something happens to remind me I am a newbie. Last night, was no expection.
+
+The ride started out with a 75 lap "warm up". The idea is to ride a paceline around the black line and progressively go faster and faster until the last 5 laps where is it an all out sprint to the finish. There were a few newer people like myself on the track. I try to hold my line and hold me speed constant, but someone always seems to yo-yo. Sometimes, I wonder if it is me. As the pace picked up, the pack started to break up. It was my turn at the front and after my lap, I pealed off the front. As I got to the pack, one of the riders was having difficulty keeping up. We were approaching 20 laps to go. The pack was now also breaking into two packs as the faster riders were taking off leaving some of us behind. The rider in front of me suddenly decided he wanted off the track (you are not supposed to do that in the middle of the paceline). I saw it happening and did not react fast enough. By the time, I passed him I was a 1/2 lap behind the pack. With the pack approaching 40km/h, this was a bad place to be. I was then told to get off the track. I wasn't tired, but learned again, the hard way, that one needs to be in the right place in the pack and one needs to NOT hesistate. Dammit. Had I just passed the guy, I would have been able to finish.
+
+That ride was a humbling experience. I had to learn again, I still have a lot to learn. However, it is a matter of keeping at it. Learn I shall. If nothing else, I am aware of how the Thursday night training is run, so I will be ready to try again next Thursday.

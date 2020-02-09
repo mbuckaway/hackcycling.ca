@@ -1,0 +1,3 @@
+---title: 46 mins in Hell Videovisible: true---<div>
+  I rode with my bike cam on the bike at the Hardwood Cross. While is shows how "bad" a cross racer I am, it's interesting to watch the first 5 mins anyways until I get dropped on the first runup. I will create an edit with commentary at a later time. For the time being, you can see me race a 40 min race in 46 mins....46 mins in Hell....damn is cross hard.<br /><br />[vimeo]31395879[/vimeo]<br />&nbsp;
+</div>

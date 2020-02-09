@@ -1,0 +1,40 @@
+---title: The Power of Restvisible: true---<p style="text-align: left;">
+  Two race nights. Two completely different results.
+</p>
+
+<p style="text-align: left;">
+  I've been racing and training at the <a href="http://forestcityvelodrome.ca" title="Forest City Velodrome" target="_blank">Forest City Velodrome</a> all winter. I have also been training and working out with Lori Silver at <a href="http://www.fitstoronto.com" title="FITS Toronto" target="_blank">FITS Toronto</a>. At the track I work on improving my bike skills. At FITS, I work on building motion skills and strength. I started with this regiment back in Sept. 2012 doing the track 2-3 times per week and FITS twice per week. I've seen steady improvement on the bike at the track and in motion/strength skills at FITS. There has never been a time when I approached a race night on a Sat at the track where the week's workouts we strenuous enough to cause a bad performance in racing. Sure, I probably could have gone faster/harder during the race by taking a rest day or two before a race night, but with racing almost every weekend, it would be more a detriment than an improvement to my performance. Racing at the track is more of a workout anyway and I consider it part of Training to Race.
+</p>
+
+<p style="text-align: left;">
+  <hr id="system-readmore" />
+  Two weeks ago on Feb 2, racing didn't work out so well and that changed my perspective on my training regiment. I have been increasing the load in strength training at FITS and some of the Wednesday workouts at the track have been getting harder. While it has never bothered me before, something happened on this race night. Mentally, this race night wasn't the same either. I was nervous. Being nervous was normal about a year ago when I was still getting used to the pace of racing at the track. I have not been nervous before a race in a while. I really know why it was the case other than a points race had been added to the program for the first time. I have done about two points races in my time at the track. Thus, unlike the other races, I did not know what to expect. Mentally, I was not prepared for some reason. Even though the pace at the track has been getting faster because better and better racers come out, it has not bothered me. For some reason, on this race night, I just could not hold the pace of the races, and it wasn't because they were faster than normal. The legs just could not turn over fast enough.
+</p>
+
+<p style="text-align: left;">
+  The first race up was the 50 lap points race - which was billed as a 40 lap race, but was changed at the last moment which I was not expecting. I was not ready for this one. Points races, I have learned, at very fast paced. With a sprint every ten laps, everyone wants to be near the front. With 20 points on the line for lapping the field pushed the pace from the start whistle. Somehow, I got stuck near the back. I had a hell of a time keeping up. At one point, I fell of the back of the pack. I think at 18 laps to go I gave up and dropped out of the race. The legs just could not keep up no matter how I tried. Even after dropping out the of the race, my heart rate never settled down. I assumed fatigue, mental and physical, had got to me. But, I was there so I soldered on. The Miss and Out is my favourite race, and a Miss and Out to 10 lap Scratch was next. I think I lasted 5 laps on the front before the pace overcame my legs and floated back through the pack.....and "Your outta there! Thanks for coming, Mark!". I can't remember the last time I didn't make it through the Miss and Out portion of this kind of race. I was second out. The last race I did was the 40 lap - er - 50 lap scratch race. Again, the number of laps was changed at the last moment. During the race, while riding in the middle of the pack, I had trouble maintaining the pace and let a gap form in the middle of the pack. Not that I wanted a gap, but I had a hard time keeping up. Then, someone attacked off the front, and I got dropped. After almost getting lapped, I dropped out. This night was not a good one for me.
+</p>
+
+<p style="text-align: left;">
+  I do not know what really happened, but physically I just did not have the legs to keep up although I did not feel particularly fatigued. The pace was not particularly high either. I just had nothing to give. Mentally, I was a bit nervous. I do not know why. I have had this type of thing happen at the track before. I decided that fatigue was the cause: mental and physcial. The harder strength workouts on the surface did not seem to matter, but it would appear they did matter. I decided to take the week off. Rest week. I cancelled my workouts at FITS and stayed away from the track for the Wednesday night training session. I did some recovery ride work by riding to work and back (yes, outside in the cold - that was fun), but that was it. It worked. Race night the following week had <em>completely</em> different results.
+</p>
+
+<p style="text-align: left;">
+  That following Sat (Feb 9), the program was simular. Points race, Miss and Out to Scratch, 40 lap scratch race, and a last man standing. The points race did not go that great as I didn't score any points, because I got caught at the back again and missed getting in the break away. Four riders got away and a few lapped the field. However, for the last sprint, I attacked with 9 to go, and managed to catch the break, passing a lot of riders in the process. I finished the last sprint in 5th place. The race was only paying down three deep, so I did not score a point. But, unlike the prior week, I finished the race and had enough gas to attack at the end of the race. The Miss and Out to Scratch was a good race. I managed to stay in through the elimination part. The cycling gods were shining on me, because two CHCH riders decided to hold the front of the group for 6 laps for the 10 lap scratch part of the race. That meant I was third from the front of the pack. I could not believe they would waste their energy. So, I patiently waited expecting someone to attack. With 4 laps to go, I gave it everything I had, came over the CHCH riders, and gave it all I had. I managed to get a 20m gap on the pack. I held my speed for the last four laps, but one of the faster riders followed me and came over me just before the line. I placed 2nd overall in the race - and might have got first if I knew the other guy was behind me. But, 2nd is fine. The last endurance race, the 40 lap scratch race, wasn't a great one either, but we used team tactics to keep Team CHCH under control. Two of our team's riders got away from the pack early in the race. When I got to the front of the pack, I hung on blocking....keeping the pace steady watching to see if the two that got away lapped the field. Of course, after some 8 laps the CHCH riders in the pack got ansy, and jumped. The entire pack came over me. I finished last place, but our two riders that got away managed to score 2nd and 3rd place, so I didn't care. I played a part in helping teamates win podium spots. The last race really wasn't fair. I did a last man standing against mostly youth races. About 2 mins into the race, I easied up expecting someone to come over me (I hate this race). However, it ended up being me and one of the junior girls to finish the race. I keep the pace easy do not to catch her too fast as track racing is all about the show, but managed to come over her some 5 mins later. So, I got first in this race.
+</p>
+
+<p style="text-align: left;">
+  Rest made all the different. From DNF'ing in two races and getting kicked out of the Miss and Out to a 2nd and 1st place finish: resting the week made all the difference. Mentally, I was completely prepared for racing whereas the week before I was a mess. It is something to keep in mind while training. Listen to your body. It will sometimes mean the difference between getting dropped and winning a race.
+</p>
+
+<p style="text-align: left;">
+  Remember: The Power of Rest.
+</p>
+
+<p style="text-align: left;">
+  &nbsp;
+</p>
+
+<p style="text-align: left;">
+  &nbsp;
+</p>

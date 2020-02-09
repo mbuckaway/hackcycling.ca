@@ -1,0 +1,1 @@
+---title: Brighter colors/higher visibility for commuting?visible: true---Mark, I have a jacket similar to yours but I am thinking it might be better to get another one that comes in brighter colors for higher visibility when commuting. For group rides it doesn't probably matter but when you are commuting at night it might help.

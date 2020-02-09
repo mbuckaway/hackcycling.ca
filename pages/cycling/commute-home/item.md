@@ -1,0 +1,7 @@
+---title: Commute home....visible: true---<div>
+  Since about March 2011, I have been commuting to the office and back about three to four times per week. My typically commuting bike is my Giant Advanced SL1 and when the weather is good I usually ride with my powertap wheel. One ugly days where the roads may be icey, I pull out my cross bike which has studded snow tires on it. However, somewhere around May I bought a fixed gear road bike so I would not forget what it is like to ride a fixie given I ride/race the track. During the last week of November, the weather was good enough that I decided to ride the fixie to work and back all week. The goal of the week was to learn to spin down hills...and in my case, that is a 1km decent that tops out at -7%. I have hit 66km/h on that decend on the road bike and I decided it was time to learn to spin at 140-150rpm and like it. It took a few days, but I got used to the speed and cadence. It is quite different than the track, because it is very easy to lose control of the bike at speed when you just cannot stop pedalling. On the way home, I have the reverse. I have to climb that hill. In a 46x17, that is hard and I find I have to climb that the entire thing out of the saddle.<br /><br />On November 25, my coworker and fellow "commuter" rode with his garmin and bike cam and he followed me home. Below is his video:<br />
+  
+  <hr id="system-readmore" />
+  &nbsp;
+  <br />[youtube]2qe3CeIqSXs[/youtube]&nbsp;
+</div>

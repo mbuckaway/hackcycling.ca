@@ -1,0 +1,3 @@
+---title: Ontario Cycling Road Calender availablevisible: true---The OCA has posted it's road preliminary road racing calender. I plan to do 90% of the OCup races. I would do 100% of the OCA Races, but April 17 is the Paris/Ancaster race. I would rather do that race as a warm up to the season than a road race. You can find the OCA calender at: 
+
+<a target="_blank" title="OCA Calender" href="http://www.ontariocycling.org/web_doc/gen_pdf/20110112-155600-Organizers%20Road.pdf">OCA Calender</a>

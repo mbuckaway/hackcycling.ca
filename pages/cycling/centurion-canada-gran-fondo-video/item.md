@@ -1,0 +1,3 @@
+---title: Centurion Canada Gran Fondo Videovisible: true---Here is the video our ride of the Centurion Canada Gran Fondo route which we did on August 1, 2010. Twenty or so people joined in to ride the route. Some ten or so did the entire route and did all the climbs.
+
+{source}<iframe src="http://player.vimeo.com/video/14543159?byline=0&portrait=0" width="400" height="225" frameborder="0"></iframe>{/source}

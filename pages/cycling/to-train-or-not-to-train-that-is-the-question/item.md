@@ -1,0 +1,22 @@
+---title: To train, or not to train: that is the question.visible: true---Whether 'tis nobler in the mind to suffer  
+The slings and arrows of outrageous fortune,  
+Or to take arms against a sea of troubles...
+
+I could go on. At one point, last year I actually memorized part of Hamlet's speach on whether to go on. I find Shakespeare facinating. But, to go on, one must. Last year, I did crash and ended the start of a good training year. Suffer did I. The doctor did suggest that four to six months of recover would I have to endure. It took time to come to grips with that idea. So, in December six months was up and train I decided to would like to try. However, if there were fates in which to believe, they were against me. Told I was by my Physiotherapist that I was not progresses as quickly as he would have liked. While I could walk, I still was limping and could not yet run. My right leg was no where near as strong of the left. Being told it might be another three to six months before I could get back on the bike and train was hard to take. 
+
+<hr id="system-readmore" />
+
+
+Of course, my trip to Florida in late December changed that somewhat. The two days I spent walking around Universal Studios proved to me that I could work harder. My right leg hurt from the effort required for that two days of walking and I developed what I was told could have been a shine split; however, it was the motivation I need to get going. It proved to me I could work harder to get my strength back in my right leg. In January, I started running and then Cross Country Skiing. Both things I was later told was too soon to do. But, I did it. Cross Country Skiing was a real challenge because I would fall so much it was almost not fun. But, I pushed on. Still, my right leg was not as strong on my left. I persisted in my exercises 3-4 times per week to get my strength back. February I noticed my right leg was getting as strong as my left. Riding my bike because easier. I could stand on the pedals and be able to get them both all the way around. Was now the time to start training?
+
+At the D'Ornellas Fitness Factory, in late Feburary, I noticed that pushing 200W was not requiring much effort. The coach at the front of the room suggested he was in power zone 3, which I found quite odd. My Zone 3 started at 225W. How could this be? I checked my power tap to make sure it was reading accurately, and then decided to book a fitness test. I figured my zones must be off.
+
+I completed the fitness test and got to 10W short of my best last year. 340W and a max heart rate of 177. Last year, around this time, I hit 350W and a max heart rate of 180. However, I was now 30-40lbs lighter, so the effort required was less. Not bad for a guy with a plate in his leg that had spend 2.5 weeks in the hospital, 8 months recoverying, and no real training of which to speak.
+
+Now, the question remained. To train, or not to train?
+
+After I being told in December I was not ready to start training, I re-evaluated the situation and decided thge right decision would be to race in 2011. This year, 2010, I would take it easy. I would do a few races to build some skill. I would work on going long. I have always wanted to cycle to Niagara Falls and back, so I would work on going long a lot. It would try to ride to work and back more often. At 57km one way, the trip to the office and back is a good distance. I wanted to be able to ride 160km or more, and still feel strong. Since I would not be able to train hard enough to matter for racing, I decided this style of riding was a good way to get my fitness back and make some improvements. Training for race season that starts in April starts in November. I reasoned that I could not be competive but starting training in April. SO, I looked at some of the longer race style events, such as Gran Fondo's in Italy and put my mind at doing the Centurion Cycling's Canada Gran Fondo and enter into the 160KM (100mile) event. Going long was something I would do.
+
+Until I did the fitness test in Feburary, I never thought of doing anything more than riding and lifting weights on my own. Another club member had her fitness test before me. She suggested that this year would be a good build year. This suggestion clicked within me. It made sense. So, I arranged to meet with the Club Coach, [Aubrey Bryce][7].
+
+ 
